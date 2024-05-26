@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kartabya-2
-- 👀 I’m interested in LEARNUNG.
+- 👀 I’m interested in LEARNING.
 - 🌱 I’m currently learning What i can.
 - 💞️ I’m looking to collaborate on everything...
 - 📫 How to reach me 😂.
